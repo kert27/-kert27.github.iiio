@@ -1,2 +1,2 @@
 # amor
-para una chica hermosa 
+detalle para una chica hermosa 
